@@ -1,0 +1,4 @@
+- Siema, Witam cię, ja jestem @szachmaho 😘
+- Interesuję się piłką ręczną oraz piłką nożną 🤾🏼‍♂️⚽
+- Ciekawostka: Jestem biedakiem ☹️
+- Jestem biały ( oczywiście chodzi o ubiór ) 🎓
